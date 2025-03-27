@@ -5,5 +5,5 @@
 - 📫 How to reach me by https://www.instagram.com/purnaa159/ and https://www.linkedin.com/in/purnachandra123/
 - 😄 Pronouns: pawan
 - ⚡ Fun fact: very slow turtle
-
+### Computer Science
 
